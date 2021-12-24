@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DexterJohnson01
-- 👀 I’m interested in working with electric vehicles 
+- 👀 I’m interested in working on electric vehicles 
 - 🌱 I’m currently learning B.tech Mechanical engineering with automobile specialisation final ear 
 - 💞️ I’m looking to collaborate on advancment of electric vehicles   
 - 📫 How to reach me email id-dexterjohnson354@gmail.com
